@@ -1,3 +1,1 @@
-# nlvtx.com
-
-visit [nlvtx.com](https://nlvtx.com)
+# [nlvtx.com](https://nlvtx.com)
