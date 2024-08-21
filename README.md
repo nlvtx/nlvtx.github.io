@@ -1,1 +1,1 @@
-# [https://northlake.tech](https://northlake.tech)
+# [northlake.tech](https://northlake.tech)
